@@ -7,3 +7,5 @@ view NOW😠😠😠😠
 <img width="683" height="547" alt="troyandcrumble" src="https://github.com/user-attachments/assets/f72426dc-d13e-4b36-a78d-5cc456600c7d" />
 <img width="1360" height="623" alt="ocparents" src="https://github.com/user-attachments/assets/99b0204c-9cc0-498d-98ed-f345c626f4c2" />
 <img width="1360" height="623" alt="child" src="https://github.com/user-attachments/assets/642245c3-bc43-4423-ba20-22fc39333a4b" />
+ART TRADE LITERALLY MOST CUTEST DRAWING EVERRR
+<img width="933" height="545" alt="art trade" src="https://github.com/user-attachments/assets/45618b9b-38ee-4a0d-90f8-a3a95ac1e5db" />
